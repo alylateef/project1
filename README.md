@@ -1,6 +1,6 @@
 # project1
 hhaahahahah\
 [krunker](https://krunker.io/?game=BHN:m0483)
-![cat](<img width="165" height="148" alt="image" src="https://github.com/user-attachments/assets/9d05891c-6bf9-438a-b46c-c44d75c1cabc" />
-)
 
+
+![billi](https://www.fearfreehappyhomes.com/wp-content/uploads/2021/10/Marci-cat-Maggie-1200x797.jpg)
